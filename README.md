@@ -22,11 +22,11 @@ I'm a 23-year-old software engineering student, holding both Turkish and Dutch n
 
 ## Educational Journey
 
-- 📚 From VMBO-T to various MBO programs, now pursuing a bachelors software engineering
+- 📚 From VMBO-T to various MBO programs, now pursuing a bachelors in software engineering
 - 🧠 Learned that consistency and discipline are keys to success
 
 ## Connect with Me
 
-- 🎮 Discord: phifey
+- 🎮 Discord: [phifey](https://discord.com/users/251017813760671745)
 
 ##
